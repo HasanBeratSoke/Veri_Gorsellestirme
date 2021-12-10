@@ -1,0 +1,1 @@
+# verigorsellestirmenotlari101
